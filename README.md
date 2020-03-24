@@ -1,2 +1,13 @@
-# git-24
-Trabajo kevin y axel
+# Mafer...
+hola mafer... solo queria decirte que te amo mucho y que eres la mejor persona que he conocido...
+eres:
+-perfecta
+-preciosa
+-hermosa (creo que es lo mismo)
+-inteligente
+-capaz de todo
+
+bueno a lo que queria llegar a partde de darte un ejemplo...
+te quiero decir...
+
+# TE AMO
